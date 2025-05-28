@@ -1,5 +1,10 @@
 # 👋 Hi, I'm AstralityBlade!
 
+
+![gankyōkūrubiyūtei-joshiraku](https://github.com/user-attachments/assets/8976d476-7553-4139-8808-abb1205e1d1a)
+
+
+
 🎓 **Cybersecurity student** with a love for all things electric and a curiosity for what makes technology tick—from the code level up to the hardware.
 
 ## 📖 Some facts about me
